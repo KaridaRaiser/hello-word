@@ -1,2 +1,3 @@
-# hello-word
-略略略第一次尝试
+yoo man
+you have maken a mistake!
+yep! I know.I know.
